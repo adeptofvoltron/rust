@@ -1,7 +1,7 @@
 
 Pomysły na główną bazę.
 
-##rozne opcje do wyboru
+## rozne opcje do wyboru
 ### opcja 1
 [heksagonalna baza z trap lootroomami](https://www.youtube.com/watch?v=WwbFTnRZHTU)
 
