@@ -13,3 +13,13 @@ https://www.youtube.com/watch?v=heuxt-aLnHQ
 ## opcja 3
 dośc drogie jak na pierwszy dzien. Dla jakiegoś wypas farmera.
 https://www.youtube.com/watch?v=rz6BiRpTLbU
+
+## opcja 4
+https://www.youtube.com/watch?v=uCnW90NZZ4o
+wymaga garage door. 
+
+## opcja 5
+no nawet adpetofvoltron to wybuduje: https://www.youtube.com/watch?v=ZaNG7u8aIwc
+
+## opcja 6
+https://www.youtube.com/watch?v=1Xw5yjog1aA dość podobne do opcji nr. 5 też banalne

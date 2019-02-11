@@ -14,3 +14,7 @@ dosyć skomplikowany build jak dla mnie. ale uważam że ma sporo lootroomów w 
 
 można go rozwijać kolejnymi krokami...więć nie trzeba mieć od zera pełnego zestawu surowców. 
 szeroki, wieć dużo surowców pójdzie na ewentualny mur.
+
+
+### opcja 3
+https://www.youtube.com/watch?v=F7MzbWdt4fk
